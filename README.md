@@ -1,0 +1,1 @@
+# sp-protection-newsletters
